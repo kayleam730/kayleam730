@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on open-source projects related to web development or machine learning.
 - 🤔 I’m looking to help with diving deeper into algorithms and data structures.
 - 💬 Ask me about anything related to programming, computer science, or technology in general!
-- 📫 How to reach me: [LinkedIn](www.linkedin.com/in/kayleamcarpenter)
+- 📫 How to reach me: [LinkedIn](http://www.linkedin.com/in/kayleamcarpenter)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I enjoy writing different fan fictions and going urban exploring!
 
