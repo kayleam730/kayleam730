@@ -7,6 +7,6 @@
 - 💬 Ask me about anything related to programming, computer science, or technology in general!
 - 📫 How to reach me: [LinkedIn](http://www.linkedin.com/in/kayleamcarpenter)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I enjoy writing different fan fictions and going urban exploring!
+- ⚡ Fun fact: You'll always find me trying to learn something new!
 
 -->
